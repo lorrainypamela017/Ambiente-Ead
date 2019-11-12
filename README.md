@@ -1,1 +1,1 @@
-# Site eduacional ambiente ead!
+# Site educacional ambiente ead!
